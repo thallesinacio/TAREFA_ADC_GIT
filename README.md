@@ -6,3 +6,6 @@ ALUNO: Thalles Inácio Araújo
 
 
 MATRÍCULA: tic370101531
+
+
+Link do vídeo: https://drive.google.com/file/d/1sRXtDjxS-z0Sq6FOUfHn_n1vPjqqjGiJ/view?usp=sharing
